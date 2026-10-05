@@ -1,22 +1,15 @@
 # Chapter 3
 
-After a long day of walking, Elara found a cluster of colorful frogs by the riverbank. “Hello, friends,” she greeted them cheerfully. “I am Elara. Can you tell me about the eels that swim in the river?”
+One sunny morning, Elara overheard her elder brother, K Civ, talking to a group of elders about a peculiar challenge facing their community. “We must decide how to protect the river’s fish population,” he said. “Overfishing has begun to threaten their numbers and our food supply. We need to find a solution soon.” Elara’s ears perked up. She loved eels—their slippery bodies and the way they shimmered like jewels in the water. This news troubled her.
 
-The frogs croaked in unison—a sound like bubbling water. “The eels are our friends, but they are shy and often hide from sight,” one frog explained. “You must approach them gently and offer them a feast.”
+As the elders debated, Elara felt a surge of determination. She approached her brother. “K Civ, what if we learn more about the eels? Perhaps we can find a way to make sure they are safe and still have enough to eat.”
 
-“Offer them a feast? What would they like?” Elara inquired, her mind racing with possibilities.
+K Civ chuckled softly. “Elara, it’s a noble thought, but we have to be practical. The elders will only listen to solutions backed by knowledge.”
 
-“They love the eggs laid by the river’s birds,” the wise frog said. “But be careful! If too many eggs are taken, it can upset the delicate balance of life here.”
+Elara thought about it for a moment. “Then I will gather that knowledge,” she declared, her heart racing with adventure. “I will travel downstream and learn about the eels from the other animals, see how they sustain themselves.”
 
-Elara understood. If she helped protect the eels and their environment, it might also help her community. Inspired, she spent the night learning from the frogs and other animals, gaining insights into the ecosystem of the river and the importance of balance.
+Though concerned, K Civ nodded in encouragement. “Be careful, little sister. The world beyond is vast and unknown.”
 
-As dawn broke, Elara set off to find the eels. She approached the riverbank softly, careful not to disturb the water’s surface. Suddenly, she felt a ripple in the water and saw a sleek, silver eel gliding by. Elara’s heart raced with joy. “Hello there!” she called, trying to sound welcoming.
+With a sense of excitement, Elara embarked on her quest. As she moved deeper into the jungle, she admired the vivid flowers and chirping birds, feeling the thrill of the unknown with each step.
 
-To her surprise, the eel stopped and swirled in the water, looking curious. “What brings you here, great elephant?” it asked. Its voice was smooth, like the sound of the river.
-
-“I wish to help you and your kind,” Elara explained. “The elders in my community are concerned about the river’s ecosystem and the eels’ future. We want to ensure there is enough for everyone.”
-
-The eel contemplated this, then swam closer. “We appreciate your concern, Elara. However, many of your kind do not understand the balance we need to thrive. What will you do to change that?”
-
-Elara felt a spark of determination. “I will speak to the elders and share what I have learned. I will encourage them to make choices that help everyone, not just one group.”
 d
