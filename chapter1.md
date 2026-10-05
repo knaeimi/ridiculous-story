@@ -5,3 +5,4 @@ In the year 3023, on the vibrant green planet of Zyphora, elephants roamed the l
 
 Among these gentle giants lived a young elephant named Elara. She was curious and adventurous, known for her bright, sparkling eyes and a tuft of hair atop her head that resembled a crown. Every day, Elara wandered through the jungle seeking knowledge and experiences beyond her cozy home by the River Vell.
 
+ d

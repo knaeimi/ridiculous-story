@@ -12,3 +12,4 @@ Though concerned, K Civ nodded in encouragement. “Be careful, little sister. T
 
 With a sense of excitement, Elara embarked on her quest. As she moved deeper into the jungle, she admired the vivid flowers and chirping birds, feeling the thrill of the unknown with each step.
 
+d

@@ -19,3 +19,4 @@ To her surprise, the eel stopped and swirled in the water, looking curious. “W
 The eel contemplated this, then swam closer. “We appreciate your concern, Elara. However, many of your kind do not understand the balance we need to thrive. What will you do to change that?”
 
 Elara felt a spark of determination. “I will speak to the elders and share what I have learned. I will encourage them to make choices that help everyone, not just one group.”
+d
