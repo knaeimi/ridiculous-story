@@ -1,7 +1,5 @@
 # Table of Contents
-- [Chapter 1] (chapter1.md)
-- [Chapter 2] (chapter1.md)
-- [Chapter 3] (chapter1.md)
-- [Chapter 4] (chapter1.md)
-
-d
+- [Peaceful Elara](chapter1.md)
+- [Protect the Eels](chapter2.md)
+- [The Importance of Balance](chapter3.md)
+- [Community Flourishes](chapter4.md)

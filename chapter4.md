@@ -1,4 +1,5 @@
 # Chapter 4
+Community Flourishes
 
 Days passed, and Elara returned home, her head full of knowledge. Gathering her strength and courage, she stood before the elders during their council meeting. “Elders of our community,” she announced, her voice clear and confident. “I have traveled and learned about the eels and the vital role they play in our ecosystem. We must protect not just the eels but also the delicate balance of our river.”
 
@@ -15,4 +16,3 @@ Months went by, and Elara watched as the eels grew in number. The river sparkled
 As the sunsets bathed the jungle in golden hues, Elara often gathered with her friends by the river, sharing tales of adventure and discovery. Together, they celebrated the eloquence of the river, the beauty of life surrounding them, and the friendships that grew stronger every day.
 
 In a world united by respect and love, the eloquent elephants thrived, always remembering the lesson Elara taught them: that true wisdom lies in understanding and caring for each other.
-d
